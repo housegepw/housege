@@ -17,3 +17,9 @@
 投稿邮箱 uobhouse@protonmail.com
 
 我们一起努力，维护伯明翰大学新生租房的合法权益
+
+[https://www.uob.pw]( https://www.uob.pw "https://www.uob.pw")   
+
+[https://housege.uob.pw]( https://housege.uob.pw "https://housege.uob.pw")  
+
+[https://weibo.com/u/6460676591]( https://weibo.com/u/6460676591 "https://weibo.com/u/6460676591")  
